@@ -18,6 +18,8 @@ idm cuddling n stuff, im a very active person and like i get bored easily n stuf
 
 please if i make you uncomfortable in any way, tell me/whisp me, and ill try and not do the thing that makes you uncomfortable :]
 
-Okay i think thats all byezz ^_^
+EDIT FROM MARCH 16!!
+
+-how do i upload my rentry into like my description im dumb asf 😢😢 https://rentry.co/mbkwh9fb
 
 
