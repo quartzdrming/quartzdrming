@@ -10,7 +10,7 @@ description](https://tomomi.neocities.org/pixeles/187.gif) <-
 -> • under 10 - Over 17+. <-
 -> • ppl who randomly vent, for no reason<-
 -> • Racists, homophobics, <-
--> [Rammie.shop](url) | [lDream.shop](url) <-
+-> [Rammie.shop](url) | [Dream.shop](url) <-
 -> ![image description](https://tomomi.neocities.org/divider/div24.gif) <-
 ->!["Intrests (⁠´⁠∩⁠｡⁠•⁠ ⁠ᵕ⁠ ⁠•⁠｡⁠∩⁠`⁠)"]() !<-
 -> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
@@ -19,6 +19,8 @@ description](https://tomomi.neocities.org/pixeles/187.gif) <-
 - ★Thin ice: Qsmptwt, 14+, drantis(nontoxic) ppl that use too much slurs.
 -> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
 - ★int: Dttwt, deltarune fans, dsmp fans, sweet people, nice ones, have the same interest in me etc etc, :3
+
+->![image description](https://media.discordapp.net/attachments/1178324292027564123/1218566824053051582/72cd4b04fb721783c4b0e9173f4ed3b6.jpg?ex=660821ca&is=65f5acca&hm=195a19cadca12d529d6d602f3ac0304294007f7911108ae2ce1c884561c8607f&)<-
 
 ->![image description](https://tomomi.neocities.org/divider/div24.gif)<-
 
