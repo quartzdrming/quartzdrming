@@ -1,3 +1,7 @@
+->![image description](https://media.discordapp.net/attachments/1178324292027564123/1218537868931239946/Untitled378_20240316192400.png?ex=660806d3&is=65f591d3&hm=ad0100b5144d1d944753e4b215850aceffcf461925c1f4e6d71e095c9272f7bc&)<-
+
+
+
 - ★ Hello! my name is Quartz!
 - ★Intrests: UT/DT, Dsmp, smiletwt, Fnaf, omori, regretevator etc!
 - ★Dni: toxic drantis, 16+, toxic people, vulgar ppl, peole that randomly vent without any warnings, homophobic, racist.
