@@ -43,15 +43,18 @@ description](https://tomomi.neocities.org/pixeles/275.png) <-
 ~ my fursona!! ↑↑ ~
 
 -> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
+
 i can also play the piano n stuff, i mainly hangout with: Quacks/Muhxon/Murfie/Craig/Choungy. -> ![image description](https://tomomi.neocities.org/pixeles2/355.gif)
 
 I also really like undertale stuff lmao, i have some plushies and cool posters and the music discs lmao, but whatever,
+
+->![image description](https://media.discordapp.net/attachments/1178324292027564123/1218566824388464731/1d56fe0325b185d61bda1b6f78d32ad2.jpg?ex=660821ca&is=65f5acca&hm=2a16ce837f101633533faf875f7e9b31482326d397336a2d694c527dac56b873&)<-
 
 -> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
 
 i mainly make like 'haha suicide' jokes, i dont take it too srsly but if you get offended by this please hide me or block me freely :)
 
--> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
+-> ![image description](https://media.discordapp.net/attachments/1178324292027564123/1218566823763513405/c7aaa035fc0dfbe293bb61317a7c0631.jpg?ex=660821ca&is=65f5acca&hm=3153b9574f30092d8d106a0bc140eaa68aa497bd16fbcc3078a97c0c4f229a63&)<-
 
 idm cuddling n stuff, im a very active person and like i get bored easily n stuff lmao so like yeah ig u can cuddle me without asking lmao!!
 
