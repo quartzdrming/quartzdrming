@@ -26,6 +26,8 @@ description](https://tomomi.neocities.org/pixeles/187.gif) <-
 
 ->!["Pansexual - Transfem - Stargender - Pupgender"]() . . 💗 ˊˎ- <-
 
+->![image description](https://media.discordapp.net/attachments/1178324292027564123/1218562279277334658/Untitled382_20240316211048.png?ex=66081d8f&is=65f5a88f&hm=83f0322c6ce01692a6b8fd63f8c2690d67013f169480665fc40fd81fe8c7ac5d&)
+
 -> ["14-15"]() . . ↷ ["8/21"]() . ![image
 description](https://tomomi.neocities.org/pixeles/275.png) <-
 
