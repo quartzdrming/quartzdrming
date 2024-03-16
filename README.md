@@ -19,10 +19,14 @@ description](https://tomomi.neocities.org/pixeles/187.gif) <-
 - ★Thin ice: Qsmptwt, 14+, drantis(nontoxic) ppl that use too much slurs.
 -> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
 - ★int: Dttwt, deltarune fans, dsmp fans, sweet people, nice ones, have the same interest in me etc etc, :3
-- ★Pronouns: She/they
-- ★,My real name is Alice, pls use alice if ur a close friend of mine::33
--★ Sexuality: Transfem Pansexual
--★Heres some more info abt me cause idk how to make a rentry 0.0 
+https://tomomi.neocities.org/divider/div24.gif
+
+-> ["She - Them - it - Star - pup."]() -ˏˋ ![image description](https://tomomi.neocities.org/pixeles/250.gif) .
+["Pansexual - Transfem - Stargender - Pupgender"]() . . 💗 ˊˎ- <-
+-> ["14-15"]() . . ↷ ["8/21"]() . ![image
+description](https://tomomi.neocities.org/pixeles/275.png) <-
+-> ["Black |★1 Indonesian - Nigerian ."]() ˛ ↳ ![image description](https://tomomi.neocities.org/28.png) . .
+["ENFP |•| Leo ♡⁠˖⁠꒰⁠ᵕ⁠༚⁠ᵕ⁠⑅⁠꒱]() ! <-
 
 -> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
 
