@@ -11,7 +11,9 @@ description](https://tomomi.neocities.org/pixeles/187.gif) <-
 -> • ppl who randomly vent, for no reason<-
 -> • Racists, homophobics, <-
 -> [Rammie.shop](url) | [Dream.shop](url) <-
+-> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
 ->!["Intrests (⁠´⁠∩⁠｡⁠•⁠ ⁠ᵕ⁠ ⁠•⁠｡⁠∩⁠`⁠)"]() !<-
+
 -> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
 ->!["*Deltarune , Undertale , Regretevator, Dream , Omori, Jschlatt , Slimecicle ,* (⁠*⁠˘⁠︶⁠˘⁠*⁠)⁠.⁠｡⁠*⁠♡"]() !<-
 -> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
