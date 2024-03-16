@@ -3,6 +3,7 @@
 -> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
 
 - ★ Hello! my name is Quartz!
+
 -> ![image description](https://tomomi.neocities.org/pixeles/187.gif) **`DNI`** ![image
 description](https://tomomi.neocities.org/pixeles/187.gif) <-
 -> • Drantis, Gnf fans. <-
