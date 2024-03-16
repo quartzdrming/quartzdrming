@@ -3,8 +3,17 @@
 -> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
 
 - ★ Hello! my name is Quartz!
-- ★Intrests: UT/DT, Dsmp, smiletwt, Fnaf, omori, regretevator etc!
-- ★Dni: toxic drantis, 16+, toxic people, vulgar ppl, peole that randomly vent without any warnings, homophobic, racist.
+-> ![image description](https://tomomi.neocities.org/pixeles/187.gif) **`DNI`** ![image
+description](https://tomomi.neocities.org/pixeles/187.gif) <-
+-> • Drantis, Gnf fans. <-
+-> • under 10 - Over 17+. <-
+-> • ppl who randomly vent, for no reason<-
+-> • Racists, homophobics, <-
+-> [Rammie.shop](url) | [lDream.shop](url) <-
+-> ![image description](https://tomomi.neocities.org/divider/div24.gif) <-
+->!["Intrests (⁠´⁠∩⁠｡⁠•⁠ ⁠ᵕ⁠ ⁠•⁠｡⁠∩⁠`⁠)"]() !<-
+-> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
+->!["*Deltarune , Undertale , Regretevator, Dream , Omori, Jschlatt , Slimecicle ,* (⁠*⁠˘⁠︶⁠˘⁠*⁠)⁠.⁠｡⁠*⁠♡"]() !<-
 -> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
 - ★Thin ice: Qsmptwt, 14+, drantis(nontoxic) ppl that use too much slurs.
 -> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
