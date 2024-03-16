@@ -66,8 +66,6 @@ please if i make you uncomfortable in any way, tell me/whisp me, and ill try and
 
 -> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
 
-EDIT FROM MARCH 16!!
+-★ i also play roblox!! My user: foxy_cookie124 - Displayname: Yourlocalbeauty ★
 
--how do i upload my rentry into like my description im dumb asf 😢😢 https://rentry.co/mbkwh9fb
-
-
+-> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
