@@ -68,4 +68,8 @@ please if i make you uncomfortable in any way, tell me/whisp me, and ill try and
 
 -★ i also play roblox!! My user: foxy_cookie124 - Displayname: Yourlocalbeauty ★
 
+->![image description](https://media.discordapp.net/attachments/1178324292027564123/1218570156675039402/Untitled383_20240316214224.png?ex=660824e5&is=65f5afe5&hm=b64bea41b95c0312cd316a7bcb6bb26736efb1834c882be1a8ac878f3d6b6d15&)
+
 -> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
+
+-Also special thanks to, Muhxon Murfie Craig Choungy Quacks !! you guys are the best!! ->![image description](https://tomomi.neocities.org/28.png)<-
