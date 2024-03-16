@@ -79,4 +79,4 @@ please if i make you uncomfortable in any way, tell me/whisp me, and ill try and
 
 - if someone sees this please say something mean to the person who ur talking to currently 💗💗
 
-->![image description](https://media.discordapp.net/attachments/1178324292027564123/1218573944798449785/Untitled352-1.mp4?ex=6608286c&is=65f5b36c&hm=95938d3236819a75ec19e5b0611fb04693298dae9efba21fd1fe47365725abca&)<-
+->![image description](https://pin.it/3ewb2eTUI)<-
