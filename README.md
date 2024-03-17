@@ -6,7 +6,7 @@
 
 -> ![image description](https://tomomi.neocities.org/pixeles/187.gif) **`DNI`** ![image
 description](https://tomomi.neocities.org/pixeles/187.gif) <-
--> • Drantis, Gnf fans. <-
+-> • Drantis, wilbur suppoters. <-
 -> • under 10 - Over 17+. <-
 -> • ppl who randomly vent, for no reason<-
 -> • Racists, homophobics, <-
@@ -17,9 +17,9 @@ description](https://tomomi.neocities.org/pixeles/187.gif) <-
 -> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
 ->!["*Deltarune , Undertale , Regretevator, Dream , Omori, Jschlatt , Slimecicle ,* (⁠*⁠˘⁠︶⁠˘⁠*⁠)⁠.⁠｡⁠*⁠♡"]() !<-
 -> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
-- ★Thin ice: Qsmptwt, 14+, drantis(nontoxic) ppl that use too much slurs.
+- ★Thin ice: Qsmptwt, 14+, drantis(nontoxic) ppl that use too much slurs, toxic gnf fans
 -> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
-- ★int: Dttwt, deltarune fans, dsmp fans, sweet people, nice ones, have the same interest in me etc etc, :3
+- ★int: Dttwt, deltarune fans, dsmp fans, sweet people,gnf fans (nontoxic) nice ones, have the same interest in me etc etc, :3
 
 ->![image description](https://media.discordapp.net/attachments/1178324292027564123/1218566824053051582/72cd4b04fb721783c4b0e9173f4ed3b6.jpg?ex=660821ca&is=65f5acca&hm=195a19cadca12d529d6d602f3ac0304294007f7911108ae2ce1c884561c8607f&)<-
 
