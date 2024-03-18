@@ -75,8 +75,11 @@ please if i make you uncomfortable in any way, tell me/whisp me, and ill try and
 
 -Also special thanks to, Muhxon Murfie Craig Choungy Quacks !! you guys are the best!! ->![image description](https://tomomi.neocities.org/28.png)<-
 
--> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
+->![image description](https://tomomi.neocities.org/divider/div40.png) <-
 
 - if someone sees this please say something mean to the person who ur talking to currently 💗💗
 
 ->![image description](https://media.discordapp.net/attachments/1178324292027564123/1218577695881953280/c4079b9bc4580bc62ee2f09bb43b6115.jpg?ex=66082bea&is=65f5b6ea&hm=a352bdd39e3b6e6b44a471eec59f1df0f23192e1b078a6390421fe3b188f3e45&)<-
+
+![image description](https://tomomi.neocities.org/divider/div40.png) 
+
