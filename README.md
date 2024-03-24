@@ -1,12 +1,12 @@
-->![image description](https://media.discordapp.net/attachments/1178324292027564123/1218552026770968596/33477963939396f4c1ddaddf2fd1a2af.jpg?ex=66081402&is=65f59f02&hm=e60d506dc87cc16e36f87429c0f6f10cd7caee1b3bc90cc75138a56de25a9f60&)
+![image description](https://media.discordapp.net/attachments/1178324292027564123/1218552026770968596/33477963939396f4c1ddaddf2fd1a2af.jpg?ex=66081402&is=65f59f02&hm=e60d506dc87cc16e36f87429c0f6f10cd7caee1b3bc90cc75138a56de25a9f60&)
 
--> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
+ ![image description](https://tomomi.neocities.org/divider/div40.png)
 
 - ★ Hello! my name is Quartz!
 
--> ![image description](https://tomomi.neocities.org/pixeles/187.gif) **`DNI`** ![image
-description](https://tomomi.neocities.org/pixeles/187.gif) <-
--> • Drantis, wilbur suppoters. <-
+ ![image description](https://tomomi.neocities.org/pixeles/187.gif) **`DNI`** ![image
+description](https://tomomi.neocities.org/pixeles/187.gif) 
+-> • Drantis, wilbur suppoters. 
 -> • under 10 - Over 17+. <-
 -> • ppl who randomly vent, for no reason<-
 -> • Racists, homophobics, <-
