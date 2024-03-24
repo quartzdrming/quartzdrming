@@ -4,6 +4,10 @@
 
 - ★ Hello! my name is Quartz!
 
+![image description](https://tomomi.neocities.org/pixeles/187.gif)
+BFYI!!: i have a bully/sensable personality, i mainly make mean jokes and make fun of ppl, typical rude person thing yayayablabla, i use slurs if im offended, please do NOT, vent to me without a warning, if you vent 2 me w/o warning, i won't care, i will make it worse , idrc abt fandoms but dni viziepop supporters etc etc .
+![image description](https://tomomi.neocities.org/pixeles/187.gif)
+
  ![image description](https://tomomi.neocities.org/pixeles/187.gif) **`DNI`** ![image
 description](https://tomomi.neocities.org/pixeles/187.gif) 
 -> • Drantis, wilbur suppoters. 
