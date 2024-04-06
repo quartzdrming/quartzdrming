@@ -29,9 +29,9 @@ description](https://tomomi.neocities.org/pixeles/187.gif)
 
 ->![image description](https://tomomi.neocities.org/divider/div24.gif)<-
 
--> ["She - Them - it - Star - pup."]() -ˏˋ ![image description](https://tomomi.neocities.org/pixeles/250.gif)<-
+ ["She - Them - it - Star - pup."]() -ˏˋ ![image description](https://tomomi.neocities.org/pixeles/250.gif)
 
-->!["Pansexual - Transfem - Stargender - Pupgender"]() . . 💗 ˊˎ- <-
+!["Pansexual - Transfem - Stargender - Pupgender"]() . . 💗 ˊˎ- 
 
 ->![image description](https://media.discordapp.net/attachments/1178324292027564123/1218562279277334658/Untitled382_20240316211048.png?ex=66081d8f&is=65f5a88f&hm=83f0322c6ce01692a6b8fd63f8c2690d67013f169480665fc40fd81fe8c7ac5d&)
 
