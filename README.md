@@ -21,7 +21,7 @@ description](https://tomomi.neocities.org/pixeles/187.gif)
 -> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
 ->!["*Deltarune , Undertale , Regretevator, Dream , Omori, Jschlatt , Slimecicle ,* (⁠*⁠˘⁠︶⁠˘⁠*⁠)⁠.⁠｡⁠*⁠♡"]() !<-
 -> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
-- ★Thin ice: Qsmptwt, 14+, drantis(nontoxic) ppl that use too much slurs, toxic gnf fans
+- ★Thin ice: Qsmptwt, 14+, drantis(nontoxic) ppl that watch hazbin hotel toxic gnf fans
 -> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
 - ★int: Dttwt, deltarune fans, dsmp fans, sweet people,gnf fans (nontoxic) nice ones, have the same interest in me etc etc, :3
 
@@ -63,7 +63,7 @@ i mainly make like 'haha suicide' jokes, i dont take it too srsly but if you get
 
 -> ![image description](https://media.discordapp.net/attachments/1178324292027564123/1218566823763513405/c7aaa035fc0dfbe293bb61317a7c0631.jpg?ex=660821ca&is=65f5acca&hm=3153b9574f30092d8d106a0bc140eaa68aa497bd16fbcc3078a97c0c4f229a63&)<-
 
-idm cuddling n stuff, im a very active person and like i get bored easily n stuff lmao so like yeah ig u can cuddle me without asking lmao!!
+idm cuddling n stuff, im a very active person and like i get bored easily n stuff lmao so like yeah, i always give out free cuddles on pt even when its not in ky name, i will always offer free cudz!! C+H all the time!!
 
 -> ![image description](https://tomomi.neocities.org/divider/div40.png) <-
 
